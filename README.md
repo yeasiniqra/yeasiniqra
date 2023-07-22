@@ -12,5 +12,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about Study Planning, Project Planning, Problem Solving
 - 📫 How to reach me: /Creative_coder7
 - 😄 Pronouns: Y E A S I N
-- ⚡ Fun fact: LoL
+- ⚡ Fun fact: LoL !!
 -->
